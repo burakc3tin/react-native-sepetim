@@ -15,3 +15,40 @@
 
  [Apk İndir
 ](https://expo.dev/artifacts/62a5ea71-83f0-4f74-9b33-2997857a78a2) 
+ 
+### `Expo Link`
+
+ [Expo Page
+](https://expo.dev/@burakc3tin/kolaysiparis) 
+
+
+### `Ekran Görüntüleri`
+
+![alt text](https://i.hizliresim.com/jl403ei.jfif)
+
+![alt text](https://i.hizliresim.com/5ypdjcw.jfif)
+ 
+![alt text](https://i.hizliresim.com/iiir4ej.jfif)
+
+![alt text](https://i.hizliresim.com/qwvxdd2.jfif)
+
+![alt text](https://i.hizliresim.com/gpztq7t.jfif)
+
+![alt text](https://i.hizliresim.com/a492psh.jfif)
+
+![alt text](https://i.hizliresim.com/8zpkh17.jfif)
+
+![alt text](https://i.hizliresim.com/djbeq7j.jfif)
+
+![alt text](https://i.hizliresim.com/f07babg.jfif)
+
+![alt text](https://i.hizliresim.com/2w0ymkc.jfif)
+
+![alt text](https://i.hizliresim.com/gqzbtlf.jfif)
+
+![alt text](https://i.hizliresim.com/29lp5h6.jfif)
+
+![alt text](https://i.hizliresim.com/moq2gwv.jfif)
+
+
+
