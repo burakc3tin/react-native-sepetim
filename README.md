@@ -24,7 +24,7 @@
 
 ### `Ekran Görüntüleri`
 
-<img src="https://i.hizliresim.com/qo1d8lv.jpg" width=50% height=50%>
+<img src="https://i.hizliresim.com/qo1d8lv.jpg" width=30% height=30%>
 ![alt text](https://i.hizliresim.com/qo1d8lv.jpg)
 
 ![alt text](https://i.hizliresim.com/5ypdjcw.jfif)
