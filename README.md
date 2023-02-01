@@ -24,7 +24,7 @@
 
 ### `Ekran Görüntüleri`
 
-![alt text](https://i.hizliresim.com/jl403ei.jfif)
+![alt text](https://i.hizliresim.com/qo1d8lv.jpg)
 
 ![alt text](https://i.hizliresim.com/5ypdjcw.jfif)
  
